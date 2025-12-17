@@ -13,7 +13,7 @@ I am a final-year Mechanical Engineering student at **COEP Technological Univers
 
 My interests lie at the intersection of **space technology, systems engineering, operations research, and Industry 5.0**, where engineering meets decision-making and intelligent systems. I enjoy working in **cross-functional teams**, leading subsystems, and converting ideas into structured, implementable solutions.
 
-![Profile Photo](thisiskusum/WhatsApp Image 2025-12-17 at 11.57.10 PM.jpeg)
+![Profile Photo](thisiskusum/WhatsApp.jpeg)
 
 ---
 
